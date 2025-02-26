@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @6sritam9
-- 👀 I’m interested in stock market trading and a bit of coding
+- 👋 Hi, Im sritam lenka
+- 👀 I’m interested in stock market trading and  bit of coding
 - 🌱 I’m currently learning web developement
 - 
 - 📫 How to reach me lenkasritam69@gmail.com
